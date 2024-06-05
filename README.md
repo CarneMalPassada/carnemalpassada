@@ -2,7 +2,7 @@
 
 -gosto de sésies e filmes🩹 
 -gosto de desenhar🎱
--gosto de fazer sentido nas aulas do Ricardo🧠
+-amo a área da tecnologia🧠
 
 ## entrar em contato comigo 📫
 
