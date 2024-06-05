@@ -6,4 +6,4 @@
 ## entrar em contato comigo
 
 00001088247866sp@al.educacao.gov.br
-![](https://tenor.com/pt-BR/view/roblox-nugget-roblox-man-face-roblox-man-face-nugget-gif-5047017544715368505)
+![](https://tenor.com/pt-BR/view/omega-nuggets-gif-11188255076402507252)
