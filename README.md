@@ -1,4 +1,4 @@
-## SEJA BEM VINDO DOGMAL 🖤🐶
+## SEJA BEM VINDO DOGCRAZY 🖤🐶
 
 -gosto de sésies e filmes🩹 
 -gosto de desenhar🎱
