@@ -10,5 +10,4 @@
 @CarneMalPassada
 
 
-
-![](https://tenor.com/pt-BR/view/omega-nuggets-gif-11188255076402507252)
+![...](https://media.tenor.com/l_Wf9zduGPAAAAAM/naruto-itachi.gif)
